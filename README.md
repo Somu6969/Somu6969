@@ -1,5 +1,5 @@
 - 👋 Hi, I’m nobita nobi.....
-- 👀 I’m interested in coding and wave development
+- 👀 I’m interested in coding and web development
 - 🌱 I’m currently learning python 
 - 💞️ I’m looking to collaborate with Elon Musk and Bill gates
 - 📫 How to reach me.... telegram👉 @Nobita_nobi_181
